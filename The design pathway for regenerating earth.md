@@ -56,3 +56,19 @@ Principles can be a way to ask questions about actions, events, or behaviors. Tw
 ## Chapter 7: Regeneration at Territorial Scales
 [Link to chapter 7 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-7)
 
+A challenge of existing regenerative efforts: too fragmented to achieve systems-level coherence, even if many number of efforts exist. This points to larger-scale power structures already established that inhibit the ability of efforts to scale up. One example being the system of private land ownership.
+
+> "...functional landscapes are the organizing principles for regeneration to occur at whole-system scales."
+
+Functional landscapes are the "units" of autonomy that enable emergent regenerative capabilities at the regional scale. My own interpretation for the definition of a **functional landscape**: the initial combination of physical factors (topography, hydrology, climate, etc.) that create the conditions to begin any amount of ecosystem succession. It may follow that the configuration of land, water, and energy creates an initial "day zero" capacity (or outputs) of regenerative systems. These systems then mature over time as the cycle of life and death itself increases that capacity dependent upon those initial conditions and further patterns of emergence.
+
+Thus, when we look at challenges that face us, we should map these challenges back to this fundamental unit of the functional landscape.
+
+> "There is no such thing as water issues unrelated to biodiversity or prioritizing climate change over election reform."
+
+Watersheds represent one means to define functional landscape boundaries, since water flow is a fundamental characteristic that enables life.
+
+Human lifestyles have a significant impact on the how the capacity of a functional landscape changes over time. At the smallest of scales, fences and small private land inhibit the success of a functional landscape. At the larger scale, political boundaries influence management of human behavior that also inhibits the success of functional landscapes.
+
+## Chapter 8: Design Frameworks for Holistic Landscape Management
+[Link to chapter 8 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-8)
