@@ -55,3 +55,4 @@ Principles can be a way to ask questions about actions, events, or behaviors. Tw
 
 ## Chapter 7: Regeneration at Territorial Scales
 [Link to chapter 7 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-7)
+
