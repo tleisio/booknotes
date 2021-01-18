@@ -62,7 +62,7 @@ A challenge of existing regenerative efforts: too fragmented to achieve systems-
 
 Functional landscapes are the "units" of autonomy that enable emergent regenerative capabilities at the regional scale. My own interpretation for the definition of a **functional landscape**: the initial combination of physical factors (topography, hydrology, climate, etc.) that create the conditions to begin any amount of ecosystem succession. It may follow that the configuration of land, water, and energy creates an initial "day zero" capacity (or outputs) of regenerative systems. These systems then mature over time as the cycle of life and death itself increases that capacity dependent upon those initial conditions and further patterns of emergence.
 
-Thus, when we look at challenges that face us, we should map these challenges back to this fundamental unit of the functional landscape.
+Thus, when we look at challenges that face us, we should map these challenges back to the functional landscape.
 
 > "There is no such thing as water issues unrelated to biodiversity or prioritizing climate change over election reform."
 
@@ -72,3 +72,39 @@ Human lifestyles have a significant impact on the how the capacity of a function
 
 ## Chapter 8: Design Frameworks for Holistic Landscape Management
 [Link to chapter 8 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-8)
+
+How might we organize and manage design frameworks when we find ourselves dedicated to one-to-few specific landscapes? How we choose to collaborate is an important part of answering this question.
+
+I am reminded here that the principles and approach of co-creation, design justice, or inclusive design help to example "how" communities might accomplish the social, human side of this question.
+
+Examples from the chapter follow.
+
+### Integrated landscape management - EcoAgricultural Partners
+A framework which is comprised of these, highly paraphrased, five steps:
+1. Assemble a core team of stakeholders to co-create the logistics for further work
+2. Facilitate the definition of the problem space, inclusive to the a detailed capturing of the context (past and present) surrounding it, and some idea of criteria to define what success looks like
+3. Brainstorm regional-level future scenarios and leverage some form of consequence mapping, tradeoffs of benefits or challenges, or expected success against criteria from step 2
+4. Create an agenda to implement an ideal future scenario that aligns to and reflects the expectations and short/medium/long-term goals of the local community
+5. Setup recurring evaluations of progress against the overall journey of the implementation plan, and ensure to experiment and iterate on methodologies used to achieve goals
+
+### Developmental evaluation - Michael Quinn Patton
+Not much said in detail about this, but it seems to emphasize process evaluation as the journey to achieve goals matures. Requires further reading elsewhere.
+
+Requires one or more people with knowledge and skills of how to manage restoration of a target ecosystem, deep listening, and community development.
+
+### Cycles of regenerative engagement - Regenerative Communities Network
+Takes Berkana Institute’s Four Stages for Developing Leadership-in-Community
+1. **Name** - provide acknowledgement of value for existing local leaders
+2. **Connect** - create and facilitate community collaboration activities to share knowledge and resources
+3. **Nourish** - assemble existing local leaders together to support community learning
+4. **Illuminate** - showcase success and learnings to create leadership growth and opportunities
+
+Applying regenerative economics you get the below modification:
+1. Name - identify leaders and rally them around goals for functional landscapes within their region
+2. Connect - build platforms spread and share knowledge and skills/practice at the region scale
+3. Nourish - create standards of success, educate, and align regional vision
+4. Illuminate - continually facilitate, participate, and propagate the urgency of regional regenerative economies or restoration of planetary health
+5. Redefine economic policies - story-tell a contextually successful regenerative economy that shows the flow of the living system
+
+## Chapter 9: Hold the Blue Marble in Your Sight
+[Link to chapter 9 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-9)
