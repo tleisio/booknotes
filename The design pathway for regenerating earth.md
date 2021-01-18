@@ -64,6 +64,7 @@ Functional landscapes are the "units" of autonomy that enable emergent regenerat
 
 Thus, when we look at challenges that face us, we should map these challenges back to the functional landscape.
 
+
 > "There is no such thing as water issues unrelated to biodiversity or prioritizing climate change over election reform."
 
 Watersheds represent one means to define functional landscape boundaries, since water flow is a fundamental characteristic that enables life.
@@ -108,3 +109,4 @@ Applying regenerative economics you get the below modification:
 
 ## Chapter 9: Hold the Blue Marble in Your Sight
 [Link to chapter 9 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-9)
+
