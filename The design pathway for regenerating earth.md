@@ -100,11 +100,20 @@ Takes Berkana Institute’s Four Stages for Developing Leadership-in-Community
 4. **Illuminate** - showcase success and learnings to create leadership growth and opportunities
 
 Applying regenerative economics you get the below modification:
-1. Name - identify leaders and rally them around goals for functional landscapes within their region
-2. Connect - build platforms spread and share knowledge and skills/practice at the region scale
-3. Nourish - create standards of success, educate, and align regional vision
-4. Illuminate - continually facilitate, participate, and propagate the urgency of regional regenerative economies or restoration of planetary health
-5. Redefine economic policies - story-tell a contextually successful regenerative economy that shows the flow of the living system
+1. **Name** - identify leaders and rally them around goals for functional landscapes within their region
+2. **Connect** - build platforms spread and share knowledge and skills/practice at the region scale
+3. **Nourish** - create standards of success, educate, and align regional vision
+4. **Illuminate** - continually facilitate, participate, and propagate the urgency of regional regenerative economies or restoration of planetary health
+5. **Redefine economic policies** - story-tell a contextually successful regenerative economy that shows the flow of the living system
 
 ## Chapter 9: Hold the Blue Marble in Your Sight
 [Link to chapter 9 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-9)
+
+As regional economies work to become more resilient/regenerative, must expect environmental collapse events to occur within region and also in surrounding neighboring regions. Until some critical mass of regenerative regions or territories are established, planetary healing will have yet to begin.
+
+Michael Quinn Patton and Glenn Page working on Blue Marble Evaluation approach to create flexible frameworks to be used map scales of regeneration and align them when they aggregate at larger scales.
+
+Likely opportunities for people to create information systems for the above.
+
+## Chapter 10: Let’s Talk About Prosocial Behavior
+[Link to chapter 10 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-10)
