@@ -106,7 +106,7 @@ Applying regenerative economics you get the below modification:
 4. **Illuminate** - continually facilitate, participate, and propagate the urgency of regional regenerative economies or restoration of planetary health
 5. **Redefine economic policies** - story-tell a contextually successful regenerative economy that shows the flow of the living system
 
-## Chapter 9: Hold the Blue Marble in Your Sight
+## Chapter 9: Hold the blue marble in your sight
 [Link to chapter 9 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-9)
 
 As regional economies work to become more resilient/regenerative, must expect environmental collapse events to occur within region and also in surrounding neighboring regions. Until some critical mass of regenerative regions or territories are established, planetary healing will have yet to begin.
@@ -115,5 +115,30 @@ Michael Quinn Patton and Glenn Page working on Blue Marble Evaluation approach t
 
 Likely opportunities for people to create information systems for the above.
 
-## Chapter 10: Let’s Talk About Prosocial Behavior
+## Chapter 10: Let’s talk about prosocial behavior
 [Link to chapter 10 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-10)
+
+Two aspects to manage navigation of planetary collapse, and avoid humanity's extinction, while working towards a regeneratively healthy planet:
+1. Previous chapters' topics - the coordinated, collaborative networks of people, information, understanding, and resources
+2. More internal and psychological - the "...design for prosocial behaviors..."
+
+> "Prosocial behaviors are the sentiments and feelings, judgments and actions, and emergent social capacities for working together toward common goals."
+
+Prosocial is a framework that is a combination of design criteria for common-pooled assets like pastures, waterways, forests (Elinor Ostrom) and these prosocial behaviors.
+
+The below principles from this framework are from the book _Prosocial_ written by Paul Atkins, David Sloan Wilson, and Steven Hayes.
+1. **Shared identity and purpose**
+2. **Equitable distribution of contributions and benefits**
+3. **Fair and inclusive decision making**
+4. **Monitoring behavior**
+5. **Graduated responding to helpful and unhelpful behavior**
+6. **Fast and fair conflict resolution**
+7. **Authority to self-govern**
+8. **Collaborative relations with other groups**
+
+These principles can be used to evaluate or assess groups to find opportunities of improvement. Further research: acceptance and commitment therapy is a topic that has tools to enable groups successful collaboration. Note also psychological capacities for further research: emotion regulation, psychological flexibility.
+
+There are other frameworks, like Prosocial, that exist to improve psychological capacities that lead to mature and healthy individuals and thus groups.
+
+## Chapter 11: Dealing with grief and trauma
+[Link to chapter 11 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-11)
