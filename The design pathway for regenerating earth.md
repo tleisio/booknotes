@@ -142,8 +142,3 @@ There are other frameworks, like Prosocial, that exist to improve psychological 
 
 ## Chapter 11: Dealing with grief and trauma
 [Link to chapter 11 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-11)
-
-Living through our pain is a skill to be learned. This chapter emphasizes the need to accept grief and trauma, and also learn how to create support systems for maintaining and healing ourselves.
-
-## Chapter 12: A network of regenerative bioregions
-[Link to chapter 12 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-12)
