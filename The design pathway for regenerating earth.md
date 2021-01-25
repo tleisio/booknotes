@@ -147,3 +147,16 @@ Living through our pain is a skill to be learned. This chapter emphasizes the ne
 
 ## Chapter 12: A network of regenerative bioregions
 [Link to chapter 12 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-12)
+
+This chapter articulates a narrative vision of a potential design pathway for humanity.
+
+> "... all sustainable human cultures in the past were organized as bioregions."
+
+It is quite fitting, after reading through this chapter and not desiring to take any more notes from it, that the following chapter's title reflects the exact direction of challenges and doubts that entered my mind on this date.
+
+Jan 24, 2021.
+
+## Chapter 13: The recipe for fundamentalist wars
+[Link to chapter 13 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-13)
+
+> "Here we are in 2020 (more than three decades later) and almost no one is aware that this may well be the ONLY viable path to planetary sustainability."
