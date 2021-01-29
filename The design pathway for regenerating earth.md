@@ -160,3 +160,18 @@ Jan 24, 2021.
 [Link to chapter 13 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-13)
 
 > "Here we are in 2020 (more than three decades later) and almost no one is aware that this may well be the ONLY viable path to planetary sustainability."
+
+Humans are _ultra_ social - we tend to trust and cooperate complete strangers.
+
+An inflection point for determining when humans behave cooperatively vs. competitively depends on the _perception_ of chronic, anxiety-inducing stressors (threats to our existence). This has been researched. Chronic stressors like frequency of extreme weather, natural disasters, etc. are very good predictor for the emergence of dictators, fundamentalists, dehumanization, etc.
+
+What this means is climate change will bring these behavior realities to light. And they _have_ brought them. Relating this to the current events of the U.S., we should _expect_ the continual rise of fascists, racists, etc.
+
+> "These people will be largely incapable of participating in the regeneration of the Earth"
+
+More than that, they will exhibit behaviors that destroy what we're attempting to create. So what do we do?
+
+We must learn to address this to survive collapse.
+
+## Chapter 14: The elixir for our protection
+[Link to chapter 14 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-14)
