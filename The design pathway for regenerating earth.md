@@ -186,3 +186,5 @@ At this time, I went on a tangent, looking to answer a question about how promin
 - ecology
 
 While this is hardly a thorough investigation, such a quick and preliminary results speaks pretty starkly about how unconventional the idea of regenerative economies are. This supports a point the author previously makes: that no one is even aware that this is a path to survival.
+
+_chapter 14 incomplete_
