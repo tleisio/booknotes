@@ -165,7 +165,7 @@ Humans are _ultra_ social - we tend to trust and cooperate complete strangers.
 
 An inflection point for determining when humans behave cooperatively vs. competitively depends on the _perception_ of chronic, anxiety-inducing stressors (threats to our existence). This has been researched. Chronic stressors like frequency of extreme weather, natural disasters, etc. are very good predictor for the emergence of dictators, fundamentalists, dehumanization, etc.
 
-What this means is climate change will bring these behavior realities to light. And they _have_ brought them. Relating this to the current events of the U.S., we should _expect_ the continual rise of fascists, racists, etc.
+What this means is climate change will bring these behavioral realities to light. And they _have_ brought them. Relating this to the current events of the U.S., we should _expect_ the continual rise of fascists, racists, etc.
 
 > "These people will be largely incapable of participating in the regeneration of the Earth"
 
@@ -175,3 +175,14 @@ We must learn to address this to survive collapse.
 
 ## Chapter 14: The elixir for our protection
 [Link to chapter 14 on Earth-regenerators network](https://earth-regenerators.mn.co/posts/the-design-pathway-chapter-14)
+
+Learn to establish empowered participation; a term from regenerative economics.
+
+> "I cannot live without you. And you depend upon me for your survival."
+
+At this time, I went on a tangent, looking to answer a question about how prominently economic journals include concepts or topics like regenerative economics. American Economics Association (AEA) journal searching comes up with zero results for:
+- regenerative economics
+- environmental economics
+- ecology
+
+While this is hardly a thorough investigation, such a quick and preliminary results speaks pretty starkly about how unconventional the idea of regenerative economies are. This supports a point the author previously makes: that no one is even aware that this is a path to survival.
