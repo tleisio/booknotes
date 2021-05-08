@@ -37,3 +37,16 @@ Seven elements of trust that can be applied to others, and more importantly your
 The paradox, and navigating them, is a spiritual value that can combat the rampant disconnect that we are experiencing today.
 
 ## Chapter 3: High lonesome: a spiritual crisis
+The world is in a state of crisis; a crisis where people are blaming others and scared instead of coming together to share in our trauma.
+
+Enter bit about how we're all living and entrenched in social bubbles.
+
+Good skill to have: to identify when one is lonely.
+
+Why? Cause research shows that living with lonliness is deadlier than living with air pollition, obesity, and excessive drinking.
+
+Fear got us here.
+
+Race, gender, and class are the three biggest divides in the United States.
+
+## Chapter 4: People are hard to hate close up. Move in.
