@@ -76,3 +76,4 @@ Dehumanizing language and behavior, is the gateway to physical violence.
 Conflict resolution more as conflict transformation. This means coming away from a hard conversation (conflict or disagreement) with the outcomes of _more_ shared understanding, respect, connection, _and yet still disagree_. Tactically, the key to this is understanding each others intent, focusing first on the shared present, moving to the shared future, and opening up to say 'tell me more' when you might want to 'counter' in an argument.
 
 ## Chapter 5: Speak truth to bullshit. Be civil.
+TBD
