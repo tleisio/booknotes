@@ -50,3 +50,29 @@ Fear got us here.
 Race, gender, and class are the three biggest divides in the United States.
 
 ## Chapter 4: People are hard to hate close up. Move in.
+Stay 'zoomed in' to the local, to see people around you for who they are based on your lived experience. Don't pre-categorize them based on higher-level abstractions that make things appear _this_ or _that_.
+
+Pain is another thing to be able to recognize and learn to live with. Pain can manifest as different feelings that make it easier to avoid addressing the pain: addiction, violence toward others, escapism, hate. Pain can only heal when we recognize it and learn to process it.
+
+Anger, as a manifestation of pain, is only a secondary emotion. Anger hides other feelings, and we are required to transform anger into something else for it to be useful.
+
+> It's hard to stay kind-hearted when you feel people are taking advantage of you or threatening you.
+
+There are boundaries to how much tolerance we give to behavior.
+
+1. Physical safety
+2. Emotional safety (dehumanizing language and behavior)
+
+Dehumanization (a topic to read more on) is a process that degrades our ability to trust, listen, communicate, and empathize. It creates sides, and puts people on the _other_ side.
+
+Categorization of groups of people (profiling based on race, gender, or class for example) is a gateway to dehumanizing. These 'othering' techniques, if successful, result in _moral exclusions_. A perception that 'others' are less than human, and thus are out of scope for moral code (of conduct). Then typically after grouping as 'other', language  follows (name calling).
+
+Reject language and discussion that makes people subhuman.
+
+This dehumanization happens everywhere, today. On both sides of the political left/right spectrum. It can be a challenge to, at the same time, support folks (educate to re-humanize behavior) who are part of each end of these spectrums.
+
+Dehumanizing language and behavior, is the gateway to physical violence.
+
+Conflict resolution more as conflict transformation. This means coming away from a hard conversation (conflict or disagreement) with the outcomes of _more_ shared understanding, respect, connection, _and yet still disagree_. Tactically, the key to this is understanding each others intent, focusing first on the shared present, moving to the shared future, and opening up to say 'tell me more' when you might want to 'counter' in an argument.
+
+## Chapter 5: Speak truth to bullshit. Be civil.
