@@ -76,4 +76,19 @@ Dehumanizing language and behavior, is the gateway to physical violence.
 Conflict resolution more as conflict transformation. This means coming away from a hard conversation (conflict or disagreement) with the outcomes of _more_ shared understanding, respect, connection, _and yet still disagree_. Tactically, the key to this is understanding each others intent, focusing first on the shared present, moving to the shared future, and opening up to say 'tell me more' when you might want to 'counter' in an argument.
 
 ## Chapter 5: Speak truth to bullshit. Be civil.
-TBD
+Loss of curiosity, and asking questions as a sign of weakness, are at the root of why there is so much bullshit. Bullshit isn't anti-truth, it simply dismisses truth. If you don't know, don't pretend, and say you don't know. Be curious.
+
+The either/or framing (with me or with the enemy) is a false choice made by those trying to bullshit others. See it, and resist it by thinking beyond the false two choices that these situations present. But be civil about it.
+
+Bullshit behavior:
+> The truth doesn't matter, _what I think_ matters."
+
+Resisting bullshit takes much more energy than making bullshit.
+
+Two tactics to increase effectiveness against bullshit:
+1. Be curious and generous with the person
+2. Be civil (find common ground, don't disrespect, listen beyond your own preconceptions, and teach others the same behavior)
+
+Note that even techniques of being civil can be weaponized against others.
+
+## Chapter 6: Hold hands. With strangers.
