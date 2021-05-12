@@ -81,7 +81,7 @@ Loss of curiosity, and asking questions as a sign of weakness, are at the root o
 The either/or framing (with me or with the enemy) is a false choice made by those trying to bullshit others. See it, and resist it by thinking beyond the false two choices that these situations present. But be civil about it.
 
 Bullshit behavior:
-> The truth doesn't matter, _what I think_ matters."
+> The truth doesn't matter, _what I think_ matters.
 
 Resisting bullshit takes much more energy than making bullshit.
 
@@ -92,3 +92,19 @@ Two tactics to increase effectiveness against bullshit:
 Note that even techniques of being civil can be weaponized against others.
 
 ## Chapter 6: Hold hands. With strangers.
+_Belief_ in our connected humanity is what we need to ensure we maintain.
+
+To do this, we must:
+> Show up for collective moments of joy and pain so we can actually bear witness to inextricable human connection.
+
+Showing up is generally called collective effervescence or collective assembly.
+
+Common enemy intimacy is fake connection. It's a shared dialogue at the expense of another's humanity.
+
+People on the extremes of both (political) spectrums are more alike to each other than the people they think they represent. This is because they are using that common enemy intimacy - the dehumanization of the 'other' - to band together. This is born out of their own pain and fear. Some of this can be seen at marches, where a set of more extreme people will rally behind "here's what we hate" compared to "here's what we believe in".
+
+Research is clear: face-to-face contact is essential for believing in intrinsic connection (true belonging). Social media and technology can develop community, but are only as good in building true belonging as they allow us to achieve this face-to-face contact.
+
+Courage requires vulnerability.
+
+## Chapter 7: Strong back. Soft front. Wild heart.
