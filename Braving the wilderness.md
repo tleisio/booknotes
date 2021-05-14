@@ -108,3 +108,6 @@ Research is clear: face-to-face contact is essential for believing in intrinsic 
 Courage requires vulnerability.
 
 ## Chapter 7: Strong back. Soft front. Wild heart.
+Basically, know who you are and what you stand for so you can speak your truth. Yet maintain an ability to be vulnerable and open to others as this is how you ensure your strength comes from love, not fear.
+
+Practice gratitude, it is a common trait among those who have joy.
